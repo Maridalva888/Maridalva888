@@ -21,7 +21,7 @@ Sinta-se à vontade para explorar meus projetos e entrar em contato para discuti
 
 **Aonde Você Pode Me Encontrar:**
 
-- [LinkedIn](www.linkedin.com/in/maridalva-cândida-macedo-791062156)
-- [Email](maridalvacontato@gmail.com)
+- [LinkedIn]     (www.linkedin.com/in/maridalva-cândida-macedo-791062156)
+- [Email]        (maridalvacontato@gmail.com)
 
 Vamos construir coisas incríveis juntos! 💪✨
